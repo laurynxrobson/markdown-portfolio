@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+So my **awesome** atrributes are that I am **success** driven, I love *fashion, art and style*. My programming languages include: **HTML, CSS**, *JavaScript and React.*
