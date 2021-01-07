@@ -1,0 +1,1 @@
+![Desktop Wallpaper](https://images.prismic.io/girlboss/YjJiMDM4ODItMWIwNC00MjNhLWFmYWUtMGNmZDA2Zjg4ZGRk_bf66570b07af57e2926861adfabdd585.jpg?auto=format&rect=0%2C0%2C1920%2C1080&h=1080&ixlib=react-9.0.2&w=1246)
